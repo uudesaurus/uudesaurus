@@ -14,5 +14,6 @@ Still far away from how compsci student should be, but yeah im here welcoming u 
 ## Get to know me more!
 * [My Medium 📝](https://medium.com/@uudesaurus)
 * [My Instagram 📸](https://www.instagram.com/uudasrul/)
+* [My Linkedin🤵](https://www.linkedin.com/in/mahmud-asrul/)
 
 
